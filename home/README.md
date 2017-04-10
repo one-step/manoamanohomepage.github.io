@@ -1,1 +1,1 @@
-manoamanohomepage.github.io/home/MiManoAMano
+manoamanohomepage.github.io/home/
